@@ -4,17 +4,17 @@
 
 
 
-# DIA 2\
+# DIA 2 \
 
 
 
 
-ª DIA 3\
+ª DIA 3 \
 
 
 
 
-# DIA 4\
+# DIA 4 \
 
 
 
