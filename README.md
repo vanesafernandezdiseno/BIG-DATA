@@ -1,20 +1,20 @@
 # BIG-DATA
-#DIA 1
+#D IA 1
 
 
 
 
-#DIA 2\
+# DIA 2\
 
 
 
 
-ªDIA 3\
+ª DIA 3\
 
 
 
 
-#DIA 4\
+# DIA 4\
 
 
 
